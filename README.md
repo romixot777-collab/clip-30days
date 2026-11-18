@@ -1,0 +1,1 @@
+Clip 30days
